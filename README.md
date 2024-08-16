@@ -1,0 +1,1 @@
+Riyaj Uddin Khan is currently a research scholar at the Department of Electronics and Electrical Engineering (EEE) in the Indian Institute of Technology, Guwahati. Riyaj does research in Biosignal Processing which mainly includes electroencephalogram (EEG).
